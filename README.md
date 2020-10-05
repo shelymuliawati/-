@@ -4,4 +4,5 @@
 ###### 💚Currently learning database design & programming with SQL
 ###### 💙and also data science in general!
 ###### ❤️you can find me @goshelyy on twt
+trying to get back on being active on social media..i guess
 
